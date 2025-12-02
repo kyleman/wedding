@@ -1,6 +1,6 @@
 ---
-title: Home
-layout: page_with_nav
+title: "General Info"
+navOrder: 1
 ---
 
 # Veronica and Kyle's Wedding
