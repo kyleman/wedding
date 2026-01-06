@@ -9,6 +9,6 @@ We are planning a once-in-a-lifetime honeymoon to Sicily this summer. We will be
 
 Because of this personalized level of care, the trip is more costly, but it ensures an unforgettable and accessible experience. If you would like to contribute to this meaningful honeymoon, gifts can be sent via Zelle to Vee’s phone number or via [Venmo @Vee-Gaspa](https://venmo.com/u/Vee-Gaspa){:target="_blank"}. Please include “honeymoon” in the memo.
 
-If you would like to learn more about the kinds of activities we will be doing on their trip to Sicily, [view Seable's sample holiday to Catania, Sicily](https://seable.co.uk/holidays/event/catania-sicily/){:target="_blank"}. They also have many other trips all throughout Europe and other places around the world.
+If you would like to learn more about the kinds of activities we will be doing on our trip to Sicily, [view Seable's sample holiday to Catania, Sicily](https://seable.co.uk/holidays/event/catania-sicily/){:target="_blank"}. They also have many other trips all throughout Europe and other places around the world.
 
 We are so grateful for your love and support and cannot wait to celebrate our new marriage together in Sicily.
