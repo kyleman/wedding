@@ -15,8 +15,8 @@ The ceremony will be at [The Crossing in Chesterfield](https://maps.app.goo.gl/j
 
 ## Reception
 
-The reception will be catered by  Chick-fil-A. Specific menu options to be announced at a later date. Cake will include several flavors for different tastes as well as a small dessert bar. Glutin free options will be available.
+The reception will be catered by  Chick-fil-A. Specific menu options to be announced at a later date. Cake will include several flavors for different tastes as well as a small dessert bar. Glutin free options will be available. Please let us know if you have any food allergies.
 
 ## Audio Description
 
-If you are blind and would like audio description, Minds Eye Radio will be providing live audio description services for the ceremony and reception.
+If you are blind and would like audio description, [Minds Eye Radio](https://mindseyeradio.org){:target="_blank"} will be providing live audio description services for the ceremony and reception.
