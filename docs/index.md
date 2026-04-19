@@ -15,6 +15,8 @@ The ceremony will be at [The Crossing in Chesterfield](https://maps.app.goo.gl/j
 
 ## Reception
 
+The reception will be from 11:00 A.M. to 2:30 P.M. Pleas See the menu below.
+
 ### Lunch
 
 The lunch  will be catered by  Chick-fil-A. The menu wil be as follows.
@@ -50,6 +52,14 @@ Desserts are from [Celebrating Life Cake Boutique](https://www.celebratinglifeca
 ### Allergies
 
 Gluten free options will be available. Please let us know if you have any food allergies.
+
+### Please Note
+
+The  reception is a dry reception. This is a nonnegotiable rule set by the crossing. We ask that you respect this. Please keep any alcohol, cigaretts, or other recreational substances in your car or at home.  If you would like a drink, see the after party section below.
+
+### After Party
+
+There will be an after party taking place at the Brick House in Chesterfield. This is right across the street from the hotel. Food and drinks are on your own, and happy hour is from 3 PM until 6 PM.
 
 ## Audio Description
 
