@@ -3,7 +3,7 @@ title: hotel
 navOrder: 2
 ---
 
-# Hotel -accommodations
+# Hotel -accommodations (no longer available)
 
 We have reserved a block of rooms at the [Hampton Inn and Suites Chesterfield](https://maps.app.goo.gl/SthNSJUG5gf4wfjx5){:target="_blank"} for those needing a hotel room during our wedding weekend. For those staying at the hotel, there will be a shuttle to take you to the church Friday morning and bring you back to the hotel at the conclusion of the reception. More specific information about the shuttle will be announced at a later date.
 
